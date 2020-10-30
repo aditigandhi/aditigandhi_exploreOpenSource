@@ -8,5 +8,6 @@ Since Delilah sourced most of her user-testers through her network, their backgr
 My response to the prompt is below: 
 I think Delilah could start by including testimonials from those who use her app (in addition to adding more inclusive photos) to emphasize that her app is not centered around a specific demographic. Additionally, I would recommend she have an inclusivity statement in her app’s “About Us” page to directly counter this important issue. Focus on bettering the app’s representation by including a diverse group of people in the testimonials, pictures and leadership. 
 
-
+Tiffany Ho
+- Awesome idea to add in quotes from girls from different backgrounds! I think that would definitely help with the issue of diversity and inclusion.
 
